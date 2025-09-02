@@ -1,2 +1,0 @@
-# Fanorona
-Fanorona malagasy
